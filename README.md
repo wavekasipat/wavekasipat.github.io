@@ -1,1 +1,0 @@
-# wavekasipat.github.io
